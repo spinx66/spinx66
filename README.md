@@ -1,3 +1,3 @@
-Hii I am spinx66. I am learning blender and unity. I will make some projects and share it with you guys. 
+Hii I am spinx/anand. I am learning blender and unity. these are my arts of blender in my own webpage. 
 
-I had a YouTube channel Hack_like_god I am a smallest youtuber
+I am trying to freelance. 
